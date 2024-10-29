@@ -8,3 +8,4 @@
 - 😄 Pronomes: MAIA
 - ⚡ Curiosidade: 
 ![](https://media.tenor.com/Y1bYCm1oDncAAAAM/salut.gif)
+[alura](www.alura.com.br)
